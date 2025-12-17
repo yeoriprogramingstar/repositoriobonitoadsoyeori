@@ -1,2 +1,0 @@
-miprimerproyectitogit
-# repositoriobonitoadsoyeori
